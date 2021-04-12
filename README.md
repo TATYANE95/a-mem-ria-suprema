@@ -1,1 +1,0 @@
-# a-mem-ria-suprema
